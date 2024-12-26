@@ -1,1 +1,1 @@
-Collaborated on this project with Caleb Galdston and SHruti Yamala
+Authors: Caleb Galdston, Samuel Mahjouri, Shruti Yamala
